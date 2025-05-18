@@ -1,1 +1,0 @@
-# guka-nurgul
